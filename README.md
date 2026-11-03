@@ -1,1 +1,1 @@
-　⠀Cool spam fllw acc's　⠀[@owlyahoo](https://github.com/owlyahoo) [@checkpatients](https://github.com/checkpatients)
+　⠀Cool spam fllw acc's　⠀[@owlyahoo](https://github.com/owlyahoo) [@checkpatients](https://github.com/checkpatients) [@partykillersduo](https://github.com/partykillersduo) [@nyancatduo](https://github.com/nyancatduo)
